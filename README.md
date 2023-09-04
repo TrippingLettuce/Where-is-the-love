@@ -1,2 +1,2 @@
-# A Statistical Analysis On How Love In Music Evolves Over Time
-Completion set for AUG 26th
+# Read the Full Where is the Love? Article on my Website
+Link
